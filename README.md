@@ -7,7 +7,7 @@ From birth we've been like brothers<br>
 Of different mothers<br>
 Within the spirit of the same womb<br>
 May the gods strike me down if I forsake you<br>
-Frater meus, you're beautifully made<br
+Frater meus, you're beautifully made<br>
 And to you I'm forever grateful<br>
 I'll never forget that you showed me to make art<br>
 And I know the love you showed me<br>
