@@ -8,7 +8,6 @@
 <p align="center">
 <img src="https://komarev.com/ghpvc/?username=shurilong&color=grey&style=plastic&label=subtypes">
  </p>
- WIP
  
  <p align="center">
 <i><b>"Oh it's not true, I don't wish harm upon you<br>
