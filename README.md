@@ -27,9 +27,4 @@ Instead of you, it should be me?"<br></i></b>
 <br>
 </p>
 
-  <p align="center">  
-<a href="https://github.com/Itrapp-d">Main</a>
-  </p>
-
-
 
